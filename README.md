@@ -1,0 +1,1 @@
+# trippsmith.github.io
